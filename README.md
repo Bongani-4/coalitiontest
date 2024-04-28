@@ -1,1 +1,1 @@
-solution available upon request
+psd -> wordpress challenge, solution available upon request
